@@ -1,0 +1,2 @@
+# NadekoBotLeak
+Nadeko Bot :eyes:
